@@ -23,6 +23,6 @@
 ** 📫 Let's Connect**
 
 - 📧 Email: [dipalidinkartathe491@gmail.com](mailto:dipalidinkartathe491@gmail.com)  
-- 🔗 LinkedIn: [linkedin.com/in/dipali-tathe][(https://linkedin.com/in/dipali-tathe)](https://www.linkedin.com/in/dipali-tathe-373b69356/)
+- 🔗 LinkedIn: [linkedin.com/in/dipali-tathe](https://www.linkedin.com/in/dipali-tathe-373b69356/)
 
 
